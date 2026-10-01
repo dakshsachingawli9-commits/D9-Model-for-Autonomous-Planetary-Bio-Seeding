@@ -232,10 +232,11 @@ Independent Student Researcher
 Biotechnology × Space Technology × Computational Biology
 
 **Concept:** D9 Model  
-**Concept Date:** 30 September 2026
+**Concept Date:** 1 oct 2026
 
 **Contact:**  
 dakshsachingawli9@gmail.com
+
 d9.dakshgawli.9@gmail.com 
 
 ---
