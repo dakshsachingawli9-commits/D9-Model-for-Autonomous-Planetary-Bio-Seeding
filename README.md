@@ -7,7 +7,7 @@
 **Field:** Biotechnology × Space Technology × Computational Biology  
 **Project:** D9 Model  
 **Status:** Early-Stage Independent Research Concept  
-**Concept Date:** 30 September 2026
+**Concept Date:** 1 October 2026
 
 ---
 
